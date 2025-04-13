@@ -1,3 +1,18 @@
 ## FapCraft Mod for Minecraft 1.12.2
 
 ### Best adult mod for Minecraft More characters and animations
+
+## Mobs: 
+- Jenny
+- Ellie
+- Slime
+- Bia
+- Bee
+- Allie
+- Luna
+- Kobold
+- Goblin
+- Galath
+- Manglelie
+
+### FapCraft is one of the most elaborate and popular mods for minecraft in this theme👉👌 Make your game more colorful using this mod😍
