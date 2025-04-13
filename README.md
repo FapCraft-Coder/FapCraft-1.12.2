@@ -1,4 +1,5 @@
 ## FapCraft Mod for Minecraft 1.12.2
+![FapCraft](src/fapcraft-mod-for-Minecraft-1-1.jpg.png)
 
 ### Best adult mod for Minecraft More characters and animations
 
